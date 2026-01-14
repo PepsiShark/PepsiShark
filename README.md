@@ -1,4 +1,5 @@
 ## My names Jack / Evan
+I am a Vox kin (i relate to him)
 
 dni list : 
 - People who ship adults with kids
@@ -7,15 +8,6 @@ dni list :
 - Racists
 - homophobes (unless its a joke)
 - transphobes heavy dni
-- trump supporters
 - people who are emotionaly immature
-
-int list ig ? : 
-
-- people who listen to msi (and dont support)
-- alt people / make diy
--artists
-- people that will wait when ur busy
-- trans
-- lgbtq
-- people who dont judge quickly or at least try to
+- people who don't understand sarcasm
+- sensitive people
