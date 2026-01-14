@@ -1,6 +1,5 @@
 ## My names Jack / Evan
 
-<!--
 dni list : 
 - People who ship adults with kids
 - people who vent all the time and the only thing they do
