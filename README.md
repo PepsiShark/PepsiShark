@@ -1,5 +1,5 @@
-## My names Jack / Evan
-I am a Vox kin (i relate to him)
+## names Jack / Evan
+I am a Vox kin (i relate to him.)
 
 dni list : 
 - People who ship adults with kids
